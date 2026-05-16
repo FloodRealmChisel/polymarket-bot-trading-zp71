@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with premium Polymarket Addon | multi-exchange-support + scalping-strategies, the #1 addon. Includes multi-exchange-support and scalping-strategies
 
 
 
